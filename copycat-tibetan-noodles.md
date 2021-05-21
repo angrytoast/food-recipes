@@ -1,3 +1,5 @@
+Attempted recreation of the Himalayan Noodles at http://www.himalayansherpahouse.com/menu.html
+
 ## Raw materials
 - 1/2 large onion
 - 1/4 head cabbage
