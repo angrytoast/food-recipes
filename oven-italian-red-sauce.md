@@ -1,3 +1,5 @@
+This is basically the recipe at https://www.seriouseats.com/the-best-slow-cooked-italian-american-tomato-sauce-red-sauce-recipe
+
 ## Ingredients:
 - 2x 1lb whole peeled tomatoes. Recipe calls for San Marzano, I've found Trader Joe unsalted plum tomatoes / Fred Meyer Kroger plain ones to work fine.
 - 4-5 tablespoon olive oil to use just in the sauce. Eyeballing is fine, I think
