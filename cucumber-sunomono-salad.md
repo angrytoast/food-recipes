@@ -1,5 +1,5 @@
 ## Ingredients
-- 3x persian cucumbers (~5 inches length) or 1x english hothouse
+- 4x persian cucumbers (~5 inches length) or 1x english hothouse
 - ~ 2 tsp rice vinegar
 - ~ 1 tsp sesame oil
 - salt
