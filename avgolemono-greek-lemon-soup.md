@@ -1,10 +1,10 @@
 ## Ingredients
 - 1 x onion
 - 1 x lemon (for juice)
-- 1 lb chicken (breast or thighs)
+- 1 lb chicken (breast or thighs), optional if you don't want meat
 - 2 x medium carrots
 - 2 tsp oregano
-- 3/4 cup orzo, or 1/2 cup rice?
+- 1 cup orzo, or 1/2 cup rice?
 - 2 eggs
 - olive oil
 - ~2 quart water
