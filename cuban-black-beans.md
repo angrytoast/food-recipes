@@ -2,7 +2,7 @@
 - 1 big onion, any colour
 - 1 large bell pepper, red
 - 1 cubanelle pepper
-- 1 seranno pepper
+- 1 serrano pepper
 - 4 cloves garlic
 - bunch cilantro
 - For carnivores, ~0.5 lb chorizo
