@@ -3,7 +3,8 @@
 - 1 x lemon (for juice)
 - 1 lb chicken (breast or thighs), optional if you don't want meat
 - 2 x medium carrots
-- 2 tsp oregano
+- 1 tbsp oregano
+- 1 tbps parsley
 - 1 cup orzo, or 1/2 cup rice?
 - 2 eggs
 - olive oil
@@ -12,13 +13,14 @@
 ## Mise en place
 1. Fine chop onion
 2. Quarter and dice carrots
-3. Dice chicken, ~1/2in pieces
+3. Dice chicken, ~1/3 inch cubes
 3. Beat eggs and set aside
 
 ## Steps
 1. Saute onions ~6 mins on medium heat till translucent
 2. Add chicken pieces, carrots, cook till chicken is more cooked on the outside, ~3 mins
-3. Add water, lemon juice, oregano, bring to boil and then simmer, 15 mins
-4. Add orzo, cook ~13 mins
-5. Scoop ~1 cup broth and mix with eggs, beat some more. This tempers the egg mix
-6. Add back to soup, heat ~4 mins while stirring, salt to taste
+2.5 Meanwhile, cook orzo ~8 mins, strain water at the end and add to the main pot
+4. Add oregano to the onion/carrot/chicken mix
+5. Add water, lemon juice, bring to boil and then simmer, 10 mins
+6. Scoop ~1 cup broth and mix with eggs while beating eggs, this tempers the egg mix
+7. Add the egg mix back to soup, heat ~4 mins while stirring. It should be more on smooth side with no egg chunks, salt to taste.
