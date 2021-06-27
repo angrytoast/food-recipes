@@ -1,7 +1,7 @@
 ## Ingredients
 - 1 x onion
 - 1 x lemon (for juice)
-- 1 lb chicken (breast or thighs), optional if you don't want meat
+- 0.5 lb chicken (breast or thighs), optional if you don't want meat
 - 2 x medium carrots
 - 1 tbsp oregano
 - 1 tbps parsley
