@@ -9,7 +9,7 @@
 - 2 eggs
 
 ## Mies-en-place
-- Jullienne carrots and cucumbers
+- Jullienne carrots and cucumbers, ~1" slices
 - Fine dice garlic
 - Rough chop cilantro
 
