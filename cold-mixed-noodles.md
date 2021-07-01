@@ -5,6 +5,9 @@
 - 3 cloves garlic
 - bunch cilantro
 
+## Optional ingredients
+- 2 eggs
+
 ## Mies-en-place
 - Jullienne carrots and cucumbers
 - Fine dice garlic
@@ -24,3 +27,4 @@
 3. Add the prepped whole ingredients to bowl with noodles
 4. Add the sauce, mix well
 5. Add more sauce/vinegar/cayenne to taste
+6. If doing optional eggs, beat them and make a thin omelette. Fold in half and cut into strips. Add to noodles.
