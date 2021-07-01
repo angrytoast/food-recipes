@@ -18,7 +18,7 @@
 - sesame oil
 
 ## Steps
-0. Combine the garlic, fish/soy sauce, rice vinegar, cayenne pepper, sesame oil in small bowl, mix well
+0. Combine the garlic, fish/soy sauce, honey/sugar, rice vinegar, cayenne pepper, sesame oil in small bowl, mix well
 1. Boil the noodles for 4 mins
 2. Drain and rinse the noodles to cool under cold water, place in a mixing bowl
 3. Add the prepped whole ingredients to bowl with noodles
