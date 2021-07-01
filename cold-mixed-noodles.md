@@ -1,5 +1,5 @@
 ## Whole ingredients
-- 1 bunch thin noodles (1" diameter) e.g.: https://www.maangchi.com/ingredient/somyeon
+- 1 bunch thin noodles (amount ~= 1" diameter circle worth) e.g.: https://www.maangchi.com/ingredient/somyeon
 - 2 carrots
 - 4-5 persian cucumbers
 - 3 cloves garlic
