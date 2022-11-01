@@ -3,7 +3,7 @@
 - 8 cloves garlic
 - Optional: chili flakes, 1tbsp
 - 1/2 cup neutral oil, e.g. canola
-- 1 lb thin wheat noodles. We use the Korean Sempio Somyeon Wheat Noodles
+- 1 lb thin wheat noodles. We use the Korean Sempio Somyeon Wheat Noodles. ![image](https://user-images.githubusercontent.com/211922/199138491-cb272b1f-c2e3-491b-876a-02a014c9d1ef.png)
 - Cilantro to taste
 - 2 tbsp sesame oil
 - 3 tbsp rice vinegar (either white or black is OK)
