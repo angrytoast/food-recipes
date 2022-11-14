@@ -1,3 +1,6 @@
+## Notes
+- Largely comes from https://www.seriouseats.com/traditional-french-cassoulet-recipe
+
 ## Whole ingredients
 - 1 large onion
 - 2 carrots
