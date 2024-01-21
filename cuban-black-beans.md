@@ -4,6 +4,7 @@
 - 1 cubanelle pepper
 - 1 serrano pepper
 - 4 cloves garlic
+- 1 to 2 can black beans
 - bunch cilantro
 - For carnivores, ~0.5 lb chorizo
 
@@ -30,7 +31,7 @@
 2. Cook chorizo if using meat, ~5 mins or enough to brown on all sides, remove for later
 2. Add cumin, red pepper flakes, oregano ~ 1min for flavor
 3. Add onion, garlic, saute for ~ 6min
-4. Add bell, cubanelle, serano peppers, saute ~5 mins
+4. Add bell, cubanelle, serano peppers, beans, saute ~5 mins
 5. Add brown sugar, vinegar, add back chorizo if using, continue saute ~5 mins
 6. Add water/stock to cover, bring up to boil, then lower heat to simmer
 7. Simmer 25 mins
