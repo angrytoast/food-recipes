@@ -19,8 +19,8 @@
 - Cut up chorizo if in sausage form, ~ 05" chunks, OR do it whole and then cut it up in the pot. I find using scissors is easy.
 
 ## Spices & flavors
-- 2 tsp whole cumin
-- 1 tsp red pepper flakes
+- 2 tbsp whole cumin or to taste
+- 1 tbsp red pepper flakes
 - 1 tbsp oregano
 - 1 tbsp brown sugar
 - 3 tbsp vinegar (white, rice)
